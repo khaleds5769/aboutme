@@ -10,7 +10,7 @@ My email is khaleds5769@hstat.org and my sep teacher is Mr. Mueller!
 
 
 ---
-#### **What I like!** 
+### **What I like!** 
 
 1- I like to go outside with my family/friends.  
 2- I enjoy watching tv  
